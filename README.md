@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/zxy6he2aimug1.gif?width=320&crop=smart&format=png8&s=23a876bc03b22ee5e512ce6307c6a113b0a9dd00" alt="Random Meme" width="500"/>
+**"You should really stop making these 'Mey-meys'..."**  
+<img src="https://preview.redd.it/jc6705tjrnug1.png?width=1080&crop=smart&auto=webp&s=635aba664ad979b2dc291370f21bc66adcee5bb5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
