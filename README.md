@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It would've been nice to sleep in today, but...**  
-<img src="https://preview.redd.it/ezu1zs9ywkug1.png?width=640&crop=smart&auto=webp&s=619b76ae6ac28e0f30bb8bf14dfd29a95aac0b6a" alt="Random Meme" width="500"/>
+**I knew I picked the right one**  
+<img src="https://preview.redd.it/opi0c03p8kug1.gif?width=640&crop=smart&format=png8&s=2a62a0cc76474d21febdd8880cb7fd0eded06a6c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
