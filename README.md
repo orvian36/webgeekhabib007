@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sadly, this mission didn’t get enough attention.**  
-<img src="https://preview.redd.it/df4zanbkbdug1.png?width=320&crop=smart&auto=webp&s=dbf993edef9691afed11c99688902e3cc4716281" alt="Random Meme" width="500"/>
+**If I can't see it, it doesn't fucking exist.**  
+<img src="https://preview.redd.it/7ihjjv5lusug1.png?width=640&crop=smart&auto=webp&s=53f69564d70f80a7ff959d98e5fb62da5d9a3e1b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
