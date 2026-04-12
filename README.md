@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I knew I picked the right one**  
-<img src="https://preview.redd.it/opi0c03p8kug1.gif?width=640&crop=smart&format=png8&s=2a62a0cc76474d21febdd8880cb7fd0eded06a6c" alt="Random Meme" width="500"/>
+**Well done my guy**  
+<img src="https://preview.redd.it/rz5w19cpzkug1.gif?width=320&crop=smart&format=png8&s=07ad4c71b1e8ae804ed7db89958bab7caacd4f06" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
