@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/2od0o2cjn6ug1.png?width=320&crop=smart&auto=webp&s=64484b627aa488c90c278f3ccffb493684b99f34" alt="Random Meme" width="500"/>
+**Paw Or Pillow**  
+<img src="https://preview.redd.it/36u0800yxnug1.png?width=960&crop=smart&auto=webp&s=fda3a546dc325e0848e7bcbd2cd5491cb9427057" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
