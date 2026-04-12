@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Check out my new shoes bro**  
-<img src="https://preview.redd.it/q10rfzqtemug1.png?width=640&crop=smart&auto=webp&s=a2c44e988d443634b1eecb0837a6ed1679ea93f0" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/5r9x8h4szkug1.png?width=1080&crop=smart&auto=webp&s=503ee4cc3ee45beb2f0e5fc00911583d9623d294" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
