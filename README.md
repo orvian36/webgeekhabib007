@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If I can't see it, it doesn't fucking exist.**  
-<img src="https://preview.redd.it/7ihjjv5lusug1.png?width=640&crop=smart&auto=webp&s=53f69564d70f80a7ff959d98e5fb62da5d9a3e1b" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/2od0o2cjn6ug1.png?width=320&crop=smart&auto=webp&s=64484b627aa488c90c278f3ccffb493684b99f34" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
