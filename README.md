@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me irl**  
-<img src="https://preview.redd.it/6sp9elrlyrug1.png?width=640&crop=smart&auto=webp&s=385532c297ac120214cf5b000e4bec6008d9c5e3" alt="Random Meme" width="500"/>
+**literal meaning of nostalgia**  
+<img src="https://preview.redd.it/r13obf3covug1.png?width=640&crop=smart&auto=webp&s=13c0e461ed1b36221532554df3da4414b4b28dad" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
