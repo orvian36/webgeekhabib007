@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The Swish are excited**  
-<img src="https://preview.redd.it/qgpua9u03yug1.png?width=960&crop=smart&auto=webp&s=73ea3f7891a5b6938bb8df078db53aef7e0747f9" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/xn0f93b3yiug1.png?width=640&crop=smart&auto=webp&s=4147e77076781d81a963adfe704350da0d380957" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
