@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What do you play on**  
-<img src="https://preview.redd.it/5lmx6qju8kug1.png?width=320&crop=smart&auto=webp&s=08a2bc717fc195eb72861f6d4c3ea1682d6b8ca3" alt="Random Meme" width="500"/>
+**Flashbang incoming**  
+<img src="https://preview.redd.it/zp3g43t3lmug1.gif?width=640&crop=smart&format=png8&s=7328c9842f4c66768e45d97b7cef8138b0e1afd6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
