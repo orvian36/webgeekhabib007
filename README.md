@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Im a big fan of Girls^2**  
-<img src="https://preview.redd.it/doux38lh10vg1.png?width=1080&crop=smart&auto=webp&s=bab80cb26563d2e442f6a4179cc213a5fd0406dc" alt="Random Meme" width="500"/>
+**I genuinely though this was just adulthood... psa just go ahead and get that bloodwork**  
+<img src="https://preview.redd.it/8c1qng2ixzug1.png?width=1080&crop=smart&auto=webp&s=947346c69ca5b8a21f8a33bafcab8464674d6db2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
