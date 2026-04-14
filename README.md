@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Wrong way**  
-<img src="https://preview.redd.it/3nxux1ysrxug1.png?width=640&crop=smart&auto=webp&s=c59174a3dffe3af0fc8aa6f38c7ade5e4d1846b0" alt="Random Meme" width="500"/>
+**Im a big fan of Girls^2**  
+<img src="https://preview.redd.it/doux38lh10vg1.png?width=1080&crop=smart&auto=webp&s=bab80cb26563d2e442f6a4179cc213a5fd0406dc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
