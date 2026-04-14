@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Loser gets pregnant**  
-<img src="https://preview.redd.it/n8cef7gv25vg1.png?width=320&crop=smart&auto=webp&s=764d591e40d4a15804346219dd548e4dd0788aa4" alt="Random Meme" width="500"/>
+**wtff**  
+<img src="https://preview.redd.it/idhxw71p4zug1.png?width=1080&crop=smart&auto=webp&s=d6107320b0d0c23513af58bcac8d7d6c40955f7e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
