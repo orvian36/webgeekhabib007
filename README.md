@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Also goes for keg stands**  
-<img src="https://preview.redd.it/jaxk5ztattug1.gif?width=320&crop=smart&format=png8&s=becd4f28ec24071283909a70c43fe85b635fd46e" alt="Random Meme" width="500"/>
+**absolute banger**  
+<img src="https://preview.redd.it/t3kk7qax6zug1.png?width=320&crop=smart&auto=webp&s=67654dad7b42d801ef231455c3121cc458ac82a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
