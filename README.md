@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This separated the strong from the  weak as a kid**  
-<img src="https://preview.redd.it/399j0bba21vg1.png?width=640&crop=smart&auto=webp&s=ff5198bbceded0cfec70d8166419ba17032dc8e7" alt="Random Meme" width="500"/>
+**Wrong way**  
+<img src="https://preview.redd.it/3nxux1ysrxug1.png?width=640&crop=smart&auto=webp&s=c59174a3dffe3af0fc8aa6f38c7ade5e4d1846b0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
