@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Adulting actually sucks**  
-<img src="https://preview.redd.it/2cubusi8q5vg1.png?width=320&crop=smart&auto=webp&s=8ae4d312e47b2a68d3534f3baebb707d282c030c" alt="Random Meme" width="500"/>
+**it aught to be like that**  
+<img src="https://preview.redd.it/9s033e6xhavg1.png?width=320&crop=smart&auto=webp&s=bd58578697a43bd21487bce46c70f1614cc207cd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
