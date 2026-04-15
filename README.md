@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I genuinely though this was just adulthood... psa just go ahead and get that bloodwork**  
-<img src="https://preview.redd.it/8c1qng2ixzug1.png?width=1080&crop=smart&auto=webp&s=947346c69ca5b8a21f8a33bafcab8464674d6db2" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://external-preview.redd.it/TwUiburchpjSF1Nta24iN7wxQj6vh2H1uGfv6MZiGAM.png?width=640&crop=smart&auto=webp&s=7c76259d0aecf8b02c2d5919b97e75b81beb6750" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
