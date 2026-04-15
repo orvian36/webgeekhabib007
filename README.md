@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Counter-blockade.**  
-<img src="https://preview.redd.it/g6n2trpegzug1.png?width=1080&crop=smart&auto=webp&s=19f403ccb58b075cdbdc945222cdea57068d6b6b" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/q99camx8qbvg1.png?width=960&crop=smart&auto=webp&s=554003b4798de55a10b552b4d8ba74570279aa75" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
