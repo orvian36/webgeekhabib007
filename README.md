@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sixty nine**  
-<img src="https://preview.redd.it/1tmvbzzv1tug1.gif?width=1080&crop=smart&format=png8&s=057d3eee4436f7f9e98b61ae5c7dc8ecfe124249" alt="Random Meme" width="500"/>
+**Kinda brave**  
+<img src="https://preview.redd.it/eu43o64t5avg1.png?width=1080&crop=smart&auto=webp&s=216fe896c9a83bd3bf1c6916d4cc0acb34b9f2b3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
