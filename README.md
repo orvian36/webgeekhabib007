@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**REAL ADRENALINE**  
-<img src="https://preview.redd.it/qhmp224bbkvg1.png?width=960&crop=smart&auto=webp&s=8b1e7c39475701ab1943b1c5c1deec7200ad024f" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ticpevzzexug1.png?width=320&crop=smart&auto=webp&s=986d9dfc54845823db4ae61c218457104212167f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
