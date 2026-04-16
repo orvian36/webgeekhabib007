@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Worst feel💀🩸**  
-<img src="https://preview.redd.it/twqwigczqfvg1.gif?width=640&crop=smart&format=png8&s=a9c14de4088109842c652674dce13406ddd45380" alt="Random Meme" width="500"/>
+**My poor child**  
+<img src="https://preview.redd.it/ouakgbbo0hvg1.png?width=960&crop=smart&auto=webp&s=16122a616d2535fb9b4989b8e66c6448046208ad" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
