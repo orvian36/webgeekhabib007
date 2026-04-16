@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Does anyone else relate? Or is it just me?**  
-<img src="https://preview.redd.it/j6ry1818ijvg1.png?width=320&crop=smart&auto=webp&s=4b62802cbb5349e46a8e2d3bd5f512fb376ee5e4" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/n6fjbbxh4wug1.png?width=1080&crop=smart&auto=webp&s=b1bd144866ec219cb291fbc357f7d8c55210e275" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
