@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/n6fjbbxh4wug1.png?width=1080&crop=smart&auto=webp&s=b1bd144866ec219cb291fbc357f7d8c55210e275" alt="Random Meme" width="500"/>
+**Japan stands up and claps back at the US for spewing that misinformation would be cinema**  
+<img src="https://preview.redd.it/6va9tz5okvug1.gif?width=320&crop=smart&format=png8&s=8c64eec0268b9dfbfd6f03268f51ff44ee248e67" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
