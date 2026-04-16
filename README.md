@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My poor child**  
-<img src="https://preview.redd.it/ouakgbbo0hvg1.png?width=960&crop=smart&auto=webp&s=16122a616d2535fb9b4989b8e66c6448046208ad" alt="Random Meme" width="500"/>
+**Does anyone else relate? Or is it just me?**  
+<img src="https://preview.redd.it/j6ry1818ijvg1.png?width=320&crop=smart&auto=webp&s=4b62802cbb5349e46a8e2d3bd5f512fb376ee5e4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
