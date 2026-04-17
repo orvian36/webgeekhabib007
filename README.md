@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I never cared much about sex scenes in series and movies**  
-<img src="https://preview.redd.it/tbfoorh2olvg1.png?width=1080&crop=smart&auto=webp&s=708cbdcee59359f0c6d316becd3891ec729bf15a" alt="Random Meme" width="500"/>
+**Modern problems require....nvm actually**  
+<img src="https://preview.redd.it/tlqidame8ivg1.gif?width=1080&crop=smart&format=png8&s=55b7b4107560dfda81d171209d31cbd79fc20434" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
