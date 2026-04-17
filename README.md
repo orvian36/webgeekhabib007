@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And it's not the Holy Hand Grenade of Antioch.**  
-<img src="https://preview.redd.it/eimy64fdkkvg1.png?width=1080&crop=smart&auto=webp&s=069e262a54cfc659147f60e8ee849f83195aa937" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/r0oyl68keovg1.png?width=320&crop=smart&auto=webp&s=8a7e4c46ae610db3b6bd87aa1334951add48e139" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
