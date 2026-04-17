@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the american dream is apparently making normal people pay full price for a country run on loopholes**  
-<img src="https://preview.redd.it/skziqit9mdvg1.png?width=1080&crop=smart&auto=webp&s=60692c26226302977657a4b2ac420d9ff2eab0df" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/r0oyl68keovg1.png?width=320&crop=smart&auto=webp&s=8a7e4c46ae610db3b6bd87aa1334951add48e139" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
