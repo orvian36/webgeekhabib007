@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When you run into single-threaded spider webs**  
-<img src="https://preview.redd.it/pbtcrr2t1svg1.png?width=1080&crop=smart&auto=webp&s=51baf82cf2089cacd7e9da8e73b9edee995b09ed" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/18iig2wpslvg1.png?width=320&crop=smart&auto=webp&s=3148e4cc3966c5fe0557883508f5efcf4349ea6f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
