@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Modern problems require....nvm actually**  
-<img src="https://preview.redd.it/tlqidame8ivg1.gif?width=1080&crop=smart&format=png8&s=55b7b4107560dfda81d171209d31cbd79fc20434" alt="Random Meme" width="500"/>
+**feelsbadman**  
+<img src="https://preview.redd.it/4brwsdkz05vg1.png?width=1080&crop=smart&auto=webp&s=6558591bdcfdd084da25ad0f251986a785115af2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
