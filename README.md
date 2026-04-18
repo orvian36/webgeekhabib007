@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**y dis interface broke 4 years now**  
-<img src="https://preview.redd.it/dutac57p9yvg1.png?width=320&crop=smart&auto=webp&s=dc14ee568010351f09b9c8a970743570ebb8efb8" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/csnmr6lw6zvg1.png?width=1080&crop=smart&auto=webp&s=c554cf465a9a2791e548b29a37c2f2fd2a09e0fe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
