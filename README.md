@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The American health system is truly miraculous.**  
-<img src="https://preview.redd.it/wqxzzgrlb8vg1.png?width=960&crop=smart&auto=webp&s=d6b9174c0faecd209013e6f637a371feef00b34d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/be9obdnuyvvg1.png?width=640&crop=smart&auto=webp&s=fdce5ee3c2be49c19ffd072f65061a55e078ab27" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
