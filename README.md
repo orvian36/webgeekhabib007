@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And for some reason, it's always a Christian who tries to convert others**  
-<img src="https://preview.redd.it/4t5foxhpacvg1.png?width=1080&crop=smart&auto=webp&s=586b1cde41fe6ab819d8a5edb5c802bad348cfa1" alt="Random Meme" width="500"/>
+**Counter-blockade.**  
+<img src="https://preview.redd.it/g6n2trpegzug1.png?width=1080&crop=smart&auto=webp&s=19f403ccb58b075cdbdc945222cdea57068d6b6b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
