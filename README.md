@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Nothing like chewing for the next 45 minutes**  
-<img src="https://preview.redd.it/0pj3oe5wypvg1.png?width=1080&crop=smart&auto=webp&s=a8bf9a8220392c5f1d35f431d162ac20d79a9609" alt="Random Meme" width="500"/>
+**y dis interface broke 4 years now**  
+<img src="https://preview.redd.it/dutac57p9yvg1.png?width=320&crop=smart&auto=webp&s=dc14ee568010351f09b9c8a970743570ebb8efb8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
