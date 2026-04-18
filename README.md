@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Regain what is lost.**  
-<img src="https://preview.redd.it/ycq1wkhwj3vg1.png?width=640&crop=smart&auto=webp&s=54152ac8ec2de74b48e42b9933c95309c99d3815" alt="Random Meme" width="500"/>
+**The American health system is truly miraculous.**  
+<img src="https://preview.redd.it/wqxzzgrlb8vg1.png?width=960&crop=smart&auto=webp&s=d6b9174c0faecd209013e6f637a371feef00b34d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
