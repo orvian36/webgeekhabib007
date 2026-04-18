@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Happens too often**  
-<img src="https://preview.redd.it/nkzl43ha6lvg1.gif?width=320&crop=smart&format=png8&s=e7a5f2607922dfcfc06856d7e3b39b5acc9b116c" alt="Random Meme" width="500"/>
+**Every year they wear less and less.**  
+<img src="https://preview.redd.it/8znqq48ik8vg1.png?width=1080&crop=smart&auto=webp&s=96c6713fbaa8093b487d2ce4f01008938e0d1687" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
