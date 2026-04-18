@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Regain what is lost.**  
-<img src="https://preview.redd.it/ycq1wkhwj3vg1.png?width=640&crop=smart&auto=webp&s=54152ac8ec2de74b48e42b9933c95309c99d3815" alt="Random Meme" width="500"/>
+**Happens too often**  
+<img src="https://preview.redd.it/nkzl43ha6lvg1.gif?width=320&crop=smart&format=png8&s=e7a5f2607922dfcfc06856d7e3b39b5acc9b116c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
