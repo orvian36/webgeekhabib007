@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**69 roman chinese german**  
-<img src="https://preview.redd.it/mz9f09r79xvg1.png?width=640&crop=smart&auto=webp&s=083ca6d02994df595aa5d0cf7b5f0f3dc9bf060c" alt="Random Meme" width="500"/>
+**The agony of finding sources for your essay**  
+<img src="https://preview.redd.it/jrmx92ok9tvg1.gif?width=320&crop=smart&format=png8&s=44e1a94d5c2a1ac63891973dc42e4c1cbc07bba3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
