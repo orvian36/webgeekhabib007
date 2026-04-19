@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/5e4yl6lx21wg1.png?width=1080&crop=smart&auto=webp&s=0a34121f0362b6c99dbacd635f78164c4277bbae" alt="Random Meme" width="500"/>
+**69 roman chinese german**  
+<img src="https://preview.redd.it/mz9f09r79xvg1.png?width=640&crop=smart&auto=webp&s=083ca6d02994df595aa5d0cf7b5f0f3dc9bf060c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
