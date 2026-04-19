@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The agony of finding sources for your essay**  
-<img src="https://preview.redd.it/jrmx92ok9tvg1.gif?width=320&crop=smart&format=png8&s=44e1a94d5c2a1ac63891973dc42e4c1cbc07bba3" alt="Random Meme" width="500"/>
+**I´m living for this shit**  
+<img src="https://preview.redd.it/xsbt9e4b8svg1.png?width=320&crop=smart&auto=webp&s=831126fbbfcac85cedd8a86d8355e053cbc8fc83" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
