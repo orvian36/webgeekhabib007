@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/lq1fo6y4p3wg1.png?width=640&crop=smart&auto=webp&s=1e6def0c356f610d7ad853f58fee1e9d6e29aa98" alt="Random Meme" width="500"/>
+**Lord, give me strength**  
+<img src="https://preview.redd.it/rrgcg1llecvg1.gif?width=1080&crop=smart&format=png8&s=9f338488483d45d21b07ca8e5f734341ff9cf1b1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
