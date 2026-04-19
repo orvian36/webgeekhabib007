@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I´m living for this shit**  
-<img src="https://preview.redd.it/xsbt9e4b8svg1.png?width=320&crop=smart&auto=webp&s=831126fbbfcac85cedd8a86d8355e053cbc8fc83" alt="Random Meme" width="500"/>
+**Certified Ukrainian moment here.**  
+<img src="https://preview.redd.it/lax3bx0q7kvg1.gif?width=640&crop=smart&format=png8&s=b53795e8776f08d6516d4b1fdc59e1d65ab6fb4a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
