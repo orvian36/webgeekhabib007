@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**In this heat, brother? Let's not do that...**  
-<img src="https://preview.redd.it/xmnpmo19arvg1.png?width=960&crop=smart&auto=webp&s=aa1e5b35292e7a98efe5c153b3b03c795e2b1962" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/o6km4vjhc3wg1.png?width=320&crop=smart&auto=webp&s=869d84e96c2f248e3e927f7094484abab1a99411" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
