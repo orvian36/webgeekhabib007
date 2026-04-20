@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Idk how to flirt...**  
-<img src="https://preview.redd.it/0ydpjbdaacwg1.png?width=640&crop=smart&auto=webp&s=ed78f721a6b4c22b9987d560fad1a75254a17309" alt="Random Meme" width="500"/>
+**You take what you can get at that point**  
+<img src="https://preview.redd.it/7z3cre3pi7wg1.png?width=320&crop=smart&auto=webp&s=9378c1af45f7ebb96e510c731d95ba9e64849ce1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
