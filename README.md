@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**pro-dye**  
-<img src="https://preview.redd.it/4tlm3c9t8cwg1.png?width=960&crop=smart&auto=webp&s=b983a8cd24f68ad465bc65d95a6b48521914318b" alt="Random Meme" width="500"/>
+**Now we mememaxxing**  
+<img src="https://preview.redd.it/sof8e7zuffwg1.png?width=320&crop=smart&auto=webp&s=112068132909b978c74bf9e322fe2c36d4e35fe3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
