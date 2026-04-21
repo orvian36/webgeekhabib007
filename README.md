@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**it's a peaceful life**  
-<img src="https://preview.redd.it/d6q9dk1coxvg1.png?width=1080&crop=smart&auto=webp&s=173203eae1faeb08f4bf271aee236699751e6cbd" alt="Random Meme" width="500"/>
+**well hello**  
+<img src="https://preview.redd.it/8jlu9ewebtvg1.gif?width=320&crop=smart&format=png8&s=5bb169764a307415a8db64c368f345f32fe56a2d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
