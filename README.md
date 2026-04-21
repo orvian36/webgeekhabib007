@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I never asked to be born also me when i eas a sperm**  
-<img src="https://preview.redd.it/pcb70yh3ciwg1.png?width=640&crop=smart&auto=webp&s=4ea1c3b936349c17a167a291591ce62337b5fedf" alt="Random Meme" width="500"/>
+**it's a peaceful life**  
+<img src="https://preview.redd.it/d6q9dk1coxvg1.png?width=1080&crop=smart&auto=webp&s=173203eae1faeb08f4bf271aee236699751e6cbd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
