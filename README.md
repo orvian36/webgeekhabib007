@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I Don't know why this trend exists, and at this point I'm afraid to ask**  
-<img src="https://preview.redd.it/np74o7vre3wg1.png?width=640&crop=smart&auto=webp&s=25a6128ca8df483eabca21a6f067086fc53817f4" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/70jsmy2dlgwg1.png?width=960&crop=smart&auto=webp&s=dc022389fadcc66d0ed8a2cc1fc17b084ccd65ea" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
