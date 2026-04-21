@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm from very old era, if you know you know**  
-<img src="https://preview.redd.it/53utssdyjiwg1.png?width=1080&crop=smart&auto=webp&s=6e9bc54890a05c19b5c2b8c56a0e1a4e82c3ee7b" alt="Random Meme" width="500"/>
+**me👴irl**  
+<img src="https://preview.redd.it/456pihzfm8wg1.png?width=640&crop=smart&auto=webp&s=01972ddc8c18ac2e8fae980b5ee7bb580c232bb4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
