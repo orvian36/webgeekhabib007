@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Title***  
-<img src="https://preview.redd.it/vx19fz39bhwg1.png?width=640&crop=smart&auto=webp&s=2641a35bdbdba3d323cf313ce0ad33cfe21730d6" alt="Random Meme" width="500"/>
+**"I'll slay 1000 hot singles before I let our love die!"**  
+<img src="https://preview.redd.it/isaac4zjrhwg1.png?width=640&crop=smart&auto=webp&s=b005097c0a89bec0c6589420c43674b277ec8154" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
