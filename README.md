@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/uom93x99vpwg1.png?width=640&crop=smart&auto=webp&s=f565d0d3f7b968a408ba1c3540cfd5c8b20d52a9" alt="Random Meme" width="500"/>
+**Dragonfly**  
+<img src="https://preview.redd.it/dpl1ekf8trwg1.gif?width=320&crop=smart&format=png8&s=ec456bd2dc5fec8789f617e3b5c5b0079a846ac5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
