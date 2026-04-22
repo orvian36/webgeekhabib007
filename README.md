@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/uom93x99vpwg1.png?width=640&crop=smart&auto=webp&s=f565d0d3f7b968a408ba1c3540cfd5c8b20d52a9" alt="Random Meme" width="500"/>
+**Ameican Albino**  
+<img src="https://preview.redd.it/jeot30xcr7wg1.gif?width=320&crop=smart&format=png8&s=24ebb22910d8cf63079bd52cf9567f770ec80849" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
