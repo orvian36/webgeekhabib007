@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**i know when i'm not wanted**  
-<img src="https://preview.redd.it/rasxwjif3mwg1.gif?width=216&crop=smart&format=png8&s=7390d3bf64b8b2818fa4828745ecf3de037e6271" alt="Random Meme" width="500"/>
+**pro-dye**  
+<img src="https://preview.redd.it/4tlm3c9t8cwg1.png?width=960&crop=smart&auto=webp&s=b983a8cd24f68ad465bc65d95a6b48521914318b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
