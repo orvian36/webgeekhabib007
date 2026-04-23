@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That is the worst**  
-<img src="https://preview.redd.it/igeo3owd7twg1.png?width=320&crop=smart&auto=webp&s=ded5687e27547c93c3cdcc96d28baca51090d4ad" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/z0tuycu9dtwg1.png?width=1080&crop=smart&auto=webp&s=77ec02f34cfdacd7728b74f17bee2298dbea2b7e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
