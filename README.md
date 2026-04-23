@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's in the blood**  
-<img src="https://preview.redd.it/u9temyb7hgwg1.png?width=1080&crop=smart&auto=webp&s=30ef68c3c8e6ebd89bd91baa65fa60e6979ce669" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/w660g8hczswg1.gif?width=320&crop=smart&format=png8&s=b56b5dcbc16b122ea1b4600ecfc71c952100ada3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
