@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**pro-dye**  
-<img src="https://preview.redd.it/4tlm3c9t8cwg1.png?width=960&crop=smart&auto=webp&s=b983a8cd24f68ad465bc65d95a6b48521914318b" alt="Random Meme" width="500"/>
+**It's in the blood**  
+<img src="https://preview.redd.it/u9temyb7hgwg1.png?width=1080&crop=smart&auto=webp&s=30ef68c3c8e6ebd89bd91baa65fa60e6979ce669" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
