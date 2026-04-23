@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That is the worst**  
-<img src="https://preview.redd.it/umq5ep2k7twg1.png?width=320&crop=smart&auto=webp&s=670569214456c4b44e107411237ffec250d1f0a1" alt="Random Meme" width="500"/>
+**the worst thing you can do in the dad's car**  
+<img src="https://preview.redd.it/dyi6ofowjwwg1.png?width=1080&crop=smart&auto=webp&s=c4be34de2be8a42359e424a80c336aa655507194" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
