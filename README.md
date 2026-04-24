@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We aura farming in the Pen bois**  
-<img src="https://preview.redd.it/u6nf5iuwsnwg1.gif?width=640&crop=smart&format=png8&s=acd6402cd1d3a50f3688b9248dce00538924c91c" alt="Random Meme" width="500"/>
+**Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wears Prada. Do u agree?**  
+<img src="https://preview.redd.it/yo5azmkdyvwg1.png?width=1080&crop=smart&auto=webp&s=bdbc030066ce0172c53d98b954ed1ec1d58e371e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
