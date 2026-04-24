@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/iqmmpfhdxqwg1.png?width=216&crop=smart&auto=webp&s=0a9b866ec366dd30bb27773fe495cd35cac0e535" alt="Random Meme" width="500"/>
+**We aura farming in the Pen bois**  
+<img src="https://preview.redd.it/u6nf5iuwsnwg1.gif?width=640&crop=smart&format=png8&s=acd6402cd1d3a50f3688b9248dce00538924c91c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
