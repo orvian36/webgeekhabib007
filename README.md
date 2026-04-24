@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wears Prada. Do u agree?**  
-<img src="https://preview.redd.it/yo5azmkdyvwg1.png?width=1080&crop=smart&auto=webp&s=bdbc030066ce0172c53d98b954ed1ec1d58e371e" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/tj5f837xoxwg1.png?width=320&crop=smart&auto=webp&s=a890869fc13a4cb5c3ec7281357ccaed705b984c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
