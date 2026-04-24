@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/iqmmpfhdxqwg1.png?width=216&crop=smart&auto=webp&s=0a9b866ec366dd30bb27773fe495cd35cac0e535" alt="Random Meme" width="500"/>
+**FUCK YOU FUCK META AND FUCK YOUR AI TRASH**  
+<img src="https://preview.redd.it/mv2nj4jh8ywg1.png?width=320&crop=smart&auto=webp&s=14b86e314f850cfff126b987b8dfe8517c290ff6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
