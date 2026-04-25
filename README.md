@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me🕊irl**  
-<img src="https://preview.redd.it/4c4i7d9nyzwg1.png?width=320&crop=smart&auto=webp&s=49ef0d705668d4caaf7ba498289bfafe98c3eb5c" alt="Random Meme" width="500"/>
+**The proper term is "dank", or perhaps "edgy".**  
+<img src="https://preview.redd.it/dgvsgcnzvywg1.png?width=640&crop=smart&auto=webp&s=9fb900ddae79e974d6b6cedb75cc1d7da4b00d75" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
