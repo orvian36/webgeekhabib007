@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Inescapable**  
-<img src="https://preview.redd.it/ay66w53y9ywg1.png?width=1080&crop=smart&auto=webp&s=55f1c991f2275a080c6a7f53c8f589e199f9c485" alt="Random Meme" width="500"/>
+**How do I get off Mr. Reddit's Wild ride?**  
+<img src="https://preview.redd.it/ag4z6hy7tzwg1.png?width=320&crop=smart&auto=webp&s=84a4b57b180e0f87e2bc507ac414f8050e9d4e44" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
