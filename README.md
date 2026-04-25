@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The chemists are definitely right on this one**  
-<img src="https://preview.redd.it/43aqhow4aaxg1.png?width=640&crop=smart&auto=webp&s=9b47053d44cd582f818ea2f6fe4055cf06a754c4" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/kdan3gpwa8xg1.png?width=1080&crop=smart&auto=webp&s=d9bda38490ea5ef0068d6023c48ce5ec36ee48ad" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
