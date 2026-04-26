@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Oh noo why Rick why**  
-<img src="https://preview.redd.it/pe4jd4jvhixg1.png?width=1080&crop=smart&auto=webp&s=53947804a15364b7b0f7615219c61e6b3249bc49" alt="Random Meme" width="500"/>
+**A man gotta do what he gotta do**  
+<img src="https://preview.redd.it/s1pbapoux5xg1.gif?width=1080&crop=smart&format=png8&s=8c7fc0d8707a5ab64acfdc69aa42c22970c9b9d9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
