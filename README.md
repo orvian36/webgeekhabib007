@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Luxury jail**  
-<img src="https://preview.redd.it/zh1ygm6szexg1.gif?width=320&crop=smart&format=png8&s=68ce677f0bc0f7e5655393082148ac1ae40101be" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/nnl98hh7sxwg1.png?width=960&crop=smart&auto=webp&s=69a2a63ca0030cece62afe70e858aa64d85c8179" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
