@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**As an older OP I understand this minefield**  
-<img src="https://preview.redd.it/cadlxnzkdjxg1.gif?width=320&crop=smart&format=png8&s=c68570e0be94124917ea9ce7206146138cbcb508" alt="Random Meme" width="500"/>
+**sun vitamin d or skin cancer**  
+<img src="https://preview.redd.it/w8ktzo6xx5xg1.png?width=640&crop=smart&auto=webp&s=eda6b1e9a60bf2e3fd06276940fcfacebfb938f7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
