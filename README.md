@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Shooting themselves in the foot with that one**  
-<img src="https://preview.redd.it/s3zsn7418rxg1.png?width=640&crop=smart&auto=webp&s=2a5facdc19f20174386237b755b0d01a604ce7b6" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/xksddm70qrxg1.png?width=640&crop=smart&auto=webp&s=5f0d6eff90f83e22c03c6ae122815f05acdb66b6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
