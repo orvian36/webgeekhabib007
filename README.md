@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Average CarX online interaction.**  
-<img src="https://preview.redd.it/9dhrf5w9o7xg1.png?width=1080&crop=smart&auto=webp&s=fb78f74dacac3e6c94a03f5fbcd6fdcfdc629074" alt="Random Meme" width="500"/>
+**A man gotta do what he gotta do**  
+<img src="https://preview.redd.it/s1pbapoux5xg1.gif?width=1080&crop=smart&format=png8&s=8c7fc0d8707a5ab64acfdc69aa42c22970c9b9d9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
