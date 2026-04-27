@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A man gotta do what he gotta do**  
-<img src="https://preview.redd.it/s1pbapoux5xg1.gif?width=1080&crop=smart&format=png8&s=8c7fc0d8707a5ab64acfdc69aa42c22970c9b9d9" alt="Random Meme" width="500"/>
+**Shooting themselves in the foot with that one**  
+<img src="https://preview.redd.it/s3zsn7418rxg1.png?width=640&crop=smart&auto=webp&s=2a5facdc19f20174386237b755b0d01a604ce7b6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
