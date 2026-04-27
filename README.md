@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/xksddm70qrxg1.png?width=640&crop=smart&auto=webp&s=5f0d6eff90f83e22c03c6ae122815f05acdb66b6" alt="Random Meme" width="500"/>
+**I would name a new color "ginukaola" just to rage bait**  
+<img src="https://preview.redd.it/73bvqsdcisxg1.png?width=320&crop=smart&auto=webp&s=b6a626cac3469daeaac2a0f5681dabc9b50e90ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
