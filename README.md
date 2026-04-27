@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/ce85v2rovnxg1.png?width=640&crop=smart&auto=webp&s=216c28815080a6b920534074466884c904407367" alt="Random Meme" width="500"/>
+**One man army barricading himself**  
+<img src="https://preview.redd.it/pcqsruypgmxg1.gif?width=640&crop=smart&format=png8&s=806389bb3ba79c307bfc1dea5318010a9677c91b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
