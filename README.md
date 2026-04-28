@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/ostd3rtrcmxg1.png?width=960&crop=smart&auto=webp&s=11251cabab5a63f5310e11ff2633077e02bc5cc8" alt="Random Meme" width="500"/>
+**I need a new mechanic…**  
+<img src="https://preview.redd.it/4s97c0pzl7xg1.gif?width=320&crop=smart&format=png8&s=b69fd1ab60d158587d4dee7d57b37bf6e013835b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
