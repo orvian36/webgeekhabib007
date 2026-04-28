@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The real OG**  
-<img src="https://preview.redd.it/9mhc9gve6vxg1.png?width=320&crop=smart&auto=webp&s=71e1efdcd0482fca8fc1db2cf23520d1e5472930" alt="Random Meme" width="500"/>
+**star wars brain parasites**  
+<img src="https://preview.redd.it/35c0mmp29xxg1.png?width=640&crop=smart&auto=webp&s=17e98007cb12670dafd37d3da76abc6be5a7318d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
