@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It happened again guys**  
-<img src="https://preview.redd.it/9qgmtyt4oxxg1.png?width=640&crop=smart&auto=webp&s=e0cc4d0ac75e78d38c1534f3e15ef36f5dbc6f0c" alt="Random Meme" width="500"/>
+**They clearly haven't gone on the campaign and it shows.**  
+<img src="https://preview.redd.it/90naz5uaxzxg1.png?width=640&crop=smart&auto=webp&s=8f0c4c6d1fcb21c4e65bdc146eefd12f371015b0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
