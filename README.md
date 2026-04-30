@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I hate driving.**  
-<img src="https://preview.redd.it/igh6t5x5m6yg1.png?width=960&crop=smart&auto=webp&s=7282be667a4e13a860c6749bf01c2e052f77ae34" alt="Random Meme" width="500"/>
+**please fill out this field**  
+<img src="https://preview.redd.it/1zey455n66yg1.png?width=320&crop=smart&auto=webp&s=da9451e854059b6e11879251f14c934fe3037c89" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
