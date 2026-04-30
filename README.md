@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I guess I made an error by not breaking the sound barrier**  
-<img src="https://preview.redd.it/p7i2n6tjd5yg1.gif?width=640&crop=smart&format=png8&s=ca18dd489e57e78e7c460974053afd541fea3966" alt="Random Meme" width="500"/>
+**They clearly haven't gone on the campaign and it shows.**  
+<img src="https://preview.redd.it/90naz5uaxzxg1.png?width=640&crop=smart&auto=webp&s=8f0c4c6d1fcb21c4e65bdc146eefd12f371015b0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
