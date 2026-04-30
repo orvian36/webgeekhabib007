@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They clearly haven't gone on the campaign and it shows.**  
-<img src="https://preview.redd.it/90naz5uaxzxg1.png?width=640&crop=smart&auto=webp&s=8f0c4c6d1fcb21c4e65bdc146eefd12f371015b0" alt="Random Meme" width="500"/>
+**It's NEVER 1 thing at Target**  
+<img src="https://preview.redd.it/971dkmy8tcyg1.png?width=1080&crop=smart&auto=webp&s=545e97c5413c70a562a5f242d4673a11d28f4751" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
