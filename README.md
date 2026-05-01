@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**One has to be used for years and other one for barely a month**  
-<img src="https://preview.redd.it/m43vn0we7cyg1.png?width=1080&crop=smart&auto=webp&s=8c9718857ec1f9a7f97054afede8075077fac8a3" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/05yy9hdx24yg1.png?width=640&crop=smart&auto=webp&s=1470406717e84784ba171fa700a3426e5f0791ca" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
