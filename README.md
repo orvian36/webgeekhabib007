@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's NEVER 1 thing at Target**  
-<img src="https://preview.redd.it/971dkmy8tcyg1.png?width=1080&crop=smart&auto=webp&s=545e97c5413c70a562a5f242d4673a11d28f4751" alt="Random Meme" width="500"/>
+**It was funny**  
+<img src="https://preview.redd.it/bpi1xxjxfkxg1.gif?width=320&crop=smart&format=png8&s=8efffab2b46501a39e33d00ebe71bc01f7ca6efb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
