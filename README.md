@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-***insert Tyrant theme from RE2R***  
-<img src="https://preview.redd.it/o9vuasd0lpxg1.gif?width=320&crop=smart&format=png8&s=65e8280c51b6bcebdca0880181bb9be27458e3eb" alt="Random Meme" width="500"/>
+**Gardening isn’t for me.**  
+<img src="https://preview.redd.it/2hkbxvat15yg1.gif?width=320&crop=smart&format=png8&s=31e9086faaef6cb032b71da397e85bb5806f9896" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
