@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It was funny**  
-<img src="https://preview.redd.it/bpi1xxjxfkxg1.gif?width=320&crop=smart&format=png8&s=8efffab2b46501a39e33d00ebe71bc01f7ca6efb" alt="Random Meme" width="500"/>
+***insert Tyrant theme from RE2R***  
+<img src="https://preview.redd.it/o9vuasd0lpxg1.gif?width=320&crop=smart&format=png8&s=65e8280c51b6bcebdca0880181bb9be27458e3eb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
