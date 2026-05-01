@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Still better than not being able to choose**  
-<img src="https://preview.redd.it/jy22d6r3vbyg1.gif?width=320&crop=smart&format=png8&s=8e03134c2b569a4f66f0b98e7cdf54a5d6713432" alt="Random Meme" width="500"/>
+**One has to be used for years and other one for barely a month**  
+<img src="https://preview.redd.it/m43vn0we7cyg1.png?width=1080&crop=smart&auto=webp&s=8c9718857ec1f9a7f97054afede8075077fac8a3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
