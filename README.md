@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**looksmaxxing**  
-<img src="https://preview.redd.it/u1m1demkyhyg1.png?width=1080&crop=smart&auto=webp&s=19edcf22ae01921da607aab2ddb120f5a0d1d601" alt="Random Meme" width="500"/>
+**Can't wait to sleep again**  
+<img src="https://preview.redd.it/88h2xm0eubyg1.png?width=1080&crop=smart&auto=webp&s=554bba1d530fe741aff1a80eca0de39a9cd0f833" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
