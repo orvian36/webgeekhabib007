@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This is on YOU**  
-<img src="https://preview.redd.it/guahvwssbfyg1.gif?width=640&crop=smart&format=png8&s=aaf9d31d5915ba816de0d92102cc1a218f9d7b7d" alt="Random Meme" width="500"/>
+**looksmaxxing**  
+<img src="https://preview.redd.it/u1m1demkyhyg1.png?width=1080&crop=smart&auto=webp&s=19edcf22ae01921da607aab2ddb120f5a0d1d601" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
