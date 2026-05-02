@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sports memes hit different**  
-<img src="https://preview.redd.it/odaz83a7cgyg1.gif?width=640&crop=smart&format=png8&s=a30c68c92d3ae8bc1a62b10b50808948c4032fc4" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/z6dqzfzrwbyg1.gif?width=320&crop=smart&format=png8&s=6cf887bb3fe651219a51db6521b40c522cda06b3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
