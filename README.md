@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I will protect you**  
-<img src="https://preview.redd.it/jdihums6pmyg1.png?width=1080&crop=smart&auto=webp&s=51d51f30bc65e5d76faf51a530c4f8965354ffbc" alt="Random Meme" width="500"/>
+**This is on YOU**  
+<img src="https://preview.redd.it/guahvwssbfyg1.gif?width=640&crop=smart&format=png8&s=aaf9d31d5915ba816de0d92102cc1a218f9d7b7d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
