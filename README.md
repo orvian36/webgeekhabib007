@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Damn Spirit. That was quick.**  
-<img src="https://preview.redd.it/em4m63l91qyg1.png?width=1080&crop=smart&auto=webp&s=8a5747edc4e7363213644e2925244da981293956" alt="Random Meme" width="500"/>
+**Sports memes hit different**  
+<img src="https://preview.redd.it/odaz83a7cgyg1.gif?width=640&crop=smart&format=png8&s=a30c68c92d3ae8bc1a62b10b50808948c4032fc4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
