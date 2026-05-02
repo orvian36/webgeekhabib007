@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Cannons**  
-<img src="https://preview.redd.it/ewl07f8cxhyg1.png?width=1080&crop=smart&auto=webp&s=f7eac6e399bb92055f7257a219db1f5801c1453e" alt="Random Meme" width="500"/>
+**MURICA!!!!**  
+<img src="https://preview.redd.it/2baczrph4ayg1.gif?width=216&crop=smart&format=png8&s=6595d228061dfed2c72639e42f18791df92eb691" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
