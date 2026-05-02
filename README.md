@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gardening isn’t for me.**  
-<img src="https://preview.redd.it/2hkbxvat15yg1.gif?width=320&crop=smart&format=png8&s=31e9086faaef6cb032b71da397e85bb5806f9896" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/f8p51ghue2yg1.png?width=640&crop=smart&auto=webp&s=5600d079c8a6b62f592e0433a0727e3cfc6875aa" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
