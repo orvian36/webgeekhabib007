@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm sure it was just a colonoscopy**  
-<img src="https://preview.redd.it/aq3340hn6nyg1.png?width=640&crop=smart&auto=webp&s=ffa5d0199bf4e656e89b3efc663b792f1bed33ee" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/c7xettoweayg1.png?width=640&crop=smart&auto=webp&s=eeafb277f231fa7dd831b0ddb37003227695137e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
