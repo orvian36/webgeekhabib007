@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Happens sometimes**  
-<img src="https://preview.redd.it/qf2c9o4vcmyg1.gif?width=216&crop=smart&format=png8&s=6f5c9347558cb938b28b8366800af35fba1079fb" alt="Random Meme" width="500"/>
+**I'm sure it was just a colonoscopy**  
+<img src="https://preview.redd.it/aq3340hn6nyg1.png?width=640&crop=smart&auto=webp&s=ffa5d0199bf4e656e89b3efc663b792f1bed33ee" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
