@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**MURICA!!!!**  
-<img src="https://preview.redd.it/2baczrph4ayg1.gif?width=216&crop=smart&format=png8&s=6595d228061dfed2c72639e42f18791df92eb691" alt="Random Meme" width="500"/>
+**Gardening isn’t for me.**  
+<img src="https://preview.redd.it/2hkbxvat15yg1.gif?width=320&crop=smart&format=png8&s=31e9086faaef6cb032b71da397e85bb5806f9896" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
