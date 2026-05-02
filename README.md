@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You thought this was a title, but it was me, Dio!**  
-<img src="https://preview.redd.it/acz8e369ggyg1.png?width=640&crop=smart&auto=webp&s=e7cb5ac0b6e51ebfec9ab585b497a8696798c5be" alt="Random Meme" width="500"/>
+**Damn Spirit. That was quick.**  
+<img src="https://preview.redd.it/em4m63l91qyg1.png?width=1080&crop=smart&auto=webp&s=8a5747edc4e7363213644e2925244da981293956" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
