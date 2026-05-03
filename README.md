@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Absolute Yellow**  
-<img src="https://preview.redd.it/38bx0wndlmyg1.png?width=640&crop=smart&auto=webp&s=7f154df0b9f7504db42dd4c90d7c94979abc6fa0" alt="Random Meme" width="500"/>
+**its called Self-torture not competition**  
+<img src="https://preview.redd.it/r3lb2x95ouyg1.png?width=640&crop=smart&auto=webp&s=dbe382437ffe5e21e820d1a3a010100f6515de4c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
